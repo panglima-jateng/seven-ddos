@@ -9,3 +9,7 @@
 5. DDOS LUCITA                   
 6. DDOS TORSHAMMER               
 7. DDOS XERXES
+
+# lapor bug
+Ig : panglima_jateng
+Wa : +62 882-1217-1828
