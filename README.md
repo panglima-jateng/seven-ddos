@@ -11,5 +11,6 @@
 7. DDOS XERXES
 
 # lapor bug
-Ig : panglima_jateng
+Ig : panglima_jateng                  
+Fb : panglima jateng                
 Wa : +62 882-1217-1828
